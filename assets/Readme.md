@@ -9,3 +9,5 @@
 
 
 ![a-wealthy-man-hides-his-riches-by-burying-a-precio-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/115790666/e0fe4b23-8a29-4051-bb88-20a977961035)
+
+![if-you-work-with-a-concentrated-heart-success-is-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/103574856/13e83667-4c57-4e67-9e07-c296a708bd8d)
