@@ -1,13 +1,10 @@
 ![adventure](https://github.com/gopalkrushnas/storybook_api/assets/103574856/91cf025f-710d-472e-835d-de51c0ffbb1b)
 
-![intelligence-is-greater-than-knowledge-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/115790666/96405019-3dde-4c77-a597-ac082e050577)
+![IMG-20231119-WA0006](https://github.com/gopalkrushnas/storybook_api/assets/103574856/4c2ef241-8c85-4104-8114-96fd5c4783c2)
+![IMG-20231119-WA0004](https://github.com/gopalkrushnas/storybook_api/assets/103574856/420c4699-7b9a-4067-9dcf-81083e7d0af7)
+![IMG-20231119-WA0005](https://github.com/gopalkrushnas/storybook_api/assets/103574856/a094957e-d8e8-4b2d-9ac6-f7de4be7a629)
 
-![hermit-transforms-a-mouse-into-various-animals-lik-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/115790666/11f091a5-f0f7-4df7-a687-ee88e939a046)
+![IMG-20231119-WA0007](https://github.com/gopalkrushnas/storybook_api/assets/103574856/7b9c1e42-d6dd-4e45-a4f8-9f58f42fc9f4)
 
 
-![crow-couple-take-help-from-jackel-and-make-tricks-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/115790666/92ad3266-b2ec-4f80-a8eb-e004570d5b38)
-
-
-![a-wealthy-man-hides-his-riches-by-burying-a-precio-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/115790666/e0fe4b23-8a29-4051-bb88-20a977961035)
-
-![if-you-work-with-a-concentrated-heart-success-is-upscaled](https://github.com/gopalkrushnas/storybook_api/assets/103574856/13e83667-4c57-4e67-9e07-c296a708bd8d)
+![IMG-20231119-WA0008](https://github.com/gopalkrushnas/storybook_api/assets/103574856/92d46587-43eb-4e6d-a180-77485083878e)
