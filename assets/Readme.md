@@ -12,3 +12,4 @@
 ![silent](https://github.com/gopalkrushnas/storybook_api/assets/103574856/577d60a6-309a-49d8-802f-6ed950960668)
 
 ![creative](https://github.com/gopalkrushnas/storybook_api/assets/103574856/fdb0a6bc-83d1-48be-b310-6c8eea8b3435)
+![human-rights](https://github.com/gopalkrushnas/storybook_api/assets/103574856/d62471b1-d1ff-460b-a70d-63d3f48ad07c)
