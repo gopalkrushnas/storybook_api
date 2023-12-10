@@ -14,3 +14,4 @@
 ![creative](https://github.com/gopalkrushnas/storybook_api/assets/103574856/fdb0a6bc-83d1-48be-b310-6c8eea8b3435)
 ![human-rights](https://github.com/gopalkrushnas/storybook_api/assets/103574856/d62471b1-d1ff-460b-a70d-63d3f48ad07c)
 ![knowledge](https://github.com/gopalkrushnas/storybook_api/assets/103574856/df48e7cb-f093-4be2-a109-dbf023e4ff93)
+![pixlr-image-generator-0a2d78da-4418-4e70-bd3c-3bbf57c3ea8a](https://github.com/gopalkrushnas/storybook_api/assets/115790666/9944c1e0-4861-4727-b757-e7fe322c0458)
